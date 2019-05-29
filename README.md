@@ -1,0 +1,1 @@
+# VER-Pok-mon-Detective-Pikachu-online-2019-Pok-mon-Detective-Pikachu-Completa-Online-en-espa-ol
